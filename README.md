@@ -1,2 +1,2 @@
 # Exercice-Cadavre-Exquis-Adeline
-cadavre exquis
+Learning a workflow with contributors
