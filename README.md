@@ -9,4 +9,3 @@ Puis sarah tombat dans le trou.
 Sans plus attendre, Sarah franchit le seuil de la porte et se retrouva plongée dans un monde fantastique. Des paysages époustouflants s'étendaient à perte de vue, remplis de créatures étranges et de plantes exotiques. Émerveillée, elle se lança dans cette aventure inattendue, prête à explorer chaque recoin de ce nouvel univers enchanteur. Au fil de ses découvertes, Sarah comprit que cette mystérieuse porte était le lien entre son monde ordinaire et celui de l'imagination débordante, où tous les rêves devenaient réalité.
 
 Quelle surprise !
-
